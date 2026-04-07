@@ -70,3 +70,6 @@ Escreva um resumo pessoal sobre sua compreensão de Deus.
 Crie um mapa mental ligando atributos de Deus a práticas espirituais.
 Qual a diferença entre teísmo, deísmo e panteísmo?
 
+LINK PARA ACESSAR O PROJECTO COMPLETO FEITO NO NOTEBOOKLM :
+
+https://notebooklm.google.com/notebook/6ce9cecb-5770-4805-a5d2-4dd188065e0f
